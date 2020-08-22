@@ -1,6 +1,6 @@
-# CAFE Scholars Research Assistantship
+# CAFE Scholars Research Assistantship (Summer 2019)
 
-The attached poster represent my contribution to the following study.
+The attached poster represents my contribution to the following study.
 
 # Title: Understanding the Choice Between Leasing and Owning for Residential Solar Systems
 
