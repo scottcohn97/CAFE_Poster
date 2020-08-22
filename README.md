@@ -2,7 +2,7 @@
 
 The attached poster represents my contribution to the following study.
 
-## Title: Understanding the Choice Between Leasing and Owning for Residential Solar Systems
+## Understanding the Choice Between Leasing and Owning for Residential Solar Systems
 
 **Authors**: Rong Rong and Christine Crago
 
